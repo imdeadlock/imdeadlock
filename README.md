@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @imdeadlock
-- 👀 I’m interested in girls 😂 
 - 🌱 I’m currently learning BCA
 - 💞️ I’m looking to collaborate on Nothing
 - 📫 How to reach me fb/insta/imdeadlock
