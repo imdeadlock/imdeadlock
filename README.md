@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @imdeadlock
-- 🌱 I’m currently learning BCA
+- 🌱 I’m currently learning about myself
 - 💞️ I’m looking to collaborate on Nothing
 - 📫 How to reach me fb/insta/imdeadlock
 
