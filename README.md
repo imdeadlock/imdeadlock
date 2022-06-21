@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @imdeadlock
+- 👋 Hi, I’m Rahul Arya
 - 🌱 I’m currently learning Full Stack Development
 - 💞️ I’m looking to collaborate on projects that can help me to improve my skills in all of the fields.
 - 📫 Reach me on any of the platform with username @imdeadlock
